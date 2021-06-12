@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MagrayTariq
+- 👀 I’m interested in Programming. 
+- 🌱 I’m currently learning php. 
+- 💞️ I’m looking to collaborate on coding cources. 
+- 📫 How to reach me Jammu and Kashmir. 
+- 💘 I am Founder and CEO at jktube.net, itsite.org, Jkjobs.net and more. 
