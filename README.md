@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning php. 
 - 💞️ I’m looking to collaborate on coding cources. 
 - 📫 How to reach me Jammu and Kashmir. 
-- 💘 I am Founder and CEO at jktube.net, itsite.org, Jkjobs.net and more. 
+- 💘 I am Founder and CEO at magraytariq.com, jktube.net, Jkjobs.net and more. 
