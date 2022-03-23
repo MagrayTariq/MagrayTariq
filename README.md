@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Python and Javascript. 
 - 💞️ I’m looking to collaborate on coding cources. 
 - 📫 How to reach me Budgam Jammu and Kashmir India or contact@magraytariq.com. 
-- 💘 I am Founder and CEO at magraytariq.com, jktube.net, Jkjobs.net and other some more. 
+- 💘 I am Founder and CEO at https://magraytariq.com, https://jktube.net, https://Jkjobs.net, https://tetrisunblocked.net/ and other some more. 
