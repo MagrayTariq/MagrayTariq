@@ -2,5 +2,5 @@
 - 👀 I’m interested in Programming. 
 - 🌱 I’m currently learning Python and Javascript. 
 - 💞️ I’m looking to collaborate on coding cources. 
-- 📫 How to reach me Jammu and Kashmir. 
+- 📫 How to reach me Budgam Jammu and Kashmir India or contact@magraytariq.com. 
 - 💘 I am Founder and CEO at magraytariq.com, jktube.net, Jkjobs.net and other some more. 
